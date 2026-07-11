@@ -9,6 +9,8 @@ Spicy outfits
 
 Open chest shirt
 
+hot-sleeping-outfits
+
 Spicy outfits for bed
 
 
