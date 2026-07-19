@@ -143,6 +143,7 @@ https://pin.it/3Q4qFSAxh
 
 
 
+<img width="1384" height="705" alt="image" src="https://github.com/user-attachments/assets/1ddb93f8-127e-4401-9602-dd6efa06a2e6" />
 
 
 
