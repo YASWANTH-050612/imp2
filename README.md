@@ -171,6 +171,7 @@ https://pin.it/3Q4qFSAxh
 https://pin.it/74epgd0Kt
 
 
+<img width="781" height="913" alt="image" src="https://github.com/user-attachments/assets/3b306086-7070-4b54-ae68-a820dc39851e" />
 
 
 
