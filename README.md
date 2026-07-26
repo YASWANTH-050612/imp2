@@ -247,6 +247,7 @@ https://pin.it/YdqTIf0nc
 https://pin.it/2jMVLFky1
 https://pin.it/7FYKKH9XX
 
+<img width="1017" height="739" alt="image" src="https://github.com/user-attachments/assets/6f16439b-d815-4e22-ac4d-cf4e7e771c8f" />
 
 
 
