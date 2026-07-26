@@ -242,10 +242,10 @@ https://pin.it/74epgd0Kt
 <img width="369" height="283" alt="image" src="https://github.com/user-attachments/assets/ad331a35-6d0d-4ea9-93e1-2ccecdc986c1" />
 
 
+https://pin.it/YdqTIf0nc
 
-
-
-
+https://pin.it/2jMVLFky1
+https://pin.it/7FYKKH9XX
 
 
 
