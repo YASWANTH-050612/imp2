@@ -256,6 +256,7 @@ https://pin.it/1hf737190
 
 <img width="517" height="937" alt="image" src="https://github.com/user-attachments/assets/469e9bae-ef96-4f68-8631-72a0004488c2" />
 
+<img width="1672" height="941" alt="image" src="https://github.com/user-attachments/assets/1823689d-1c2e-4352-b4fe-ad4244ff6e2a" />
 
 
 
