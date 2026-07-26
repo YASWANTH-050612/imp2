@@ -254,6 +254,7 @@ https://pin.it/Odfj0zoFt
 
 https://pin.it/1hf737190
 
+<img width="517" height="937" alt="image" src="https://github.com/user-attachments/assets/469e9bae-ef96-4f68-8631-72a0004488c2" />
 
 
 
