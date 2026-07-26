@@ -231,10 +231,15 @@ https://pin.it/74epgd0Kt
 <img width="683" height="893" alt="image" src="https://github.com/user-attachments/assets/1796b157-b374-4df5-952e-d50b11a38b45" />
 
 
+<img width="1359" height="895" alt="image" src="https://github.com/user-attachments/assets/00ab2a02-1387-4272-8327-ff946e357f51" />
 
+<img width="441" height="335" alt="image" src="https://github.com/user-attachments/assets/6b307b19-c5e1-43e8-9564-5cac8e262aac" />
 
+<img width="369" height="283" alt="image" src="https://github.com/user-attachments/assets/1e62ed0c-4724-4112-89b9-0adcd783cb31" />
 
+<img width="369" height="283" alt="image" src="https://github.com/user-attachments/assets/6760d408-f32d-43b2-8995-d7f0fee5f9b3" />
 
+<img width="369" height="283" alt="image" src="https://github.com/user-attachments/assets/ad331a35-6d0d-4ea9-93e1-2ccecdc986c1" />
 
 
 
