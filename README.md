@@ -276,11 +276,15 @@ https://fapello.com/victoria-pfeifer/
 https://www.youtube.com/@VictoriaPfeifer/posts
 
 
+<img width="6297" height="1305" alt="image" src="https://github.com/user-attachments/assets/3b90366f-a369-4008-aadb-c4364932b61f" />
 
 
+<img width="5977" height="1329" alt="image" src="https://github.com/user-attachments/assets/ac5bad60-e70f-4e96-ad57-91bdc7d2c54f" />
 
 
+<img width="5409" height="1073" alt="image" src="https://github.com/user-attachments/assets/42e93247-19d6-4e0e-8acd-3d24cc3fe377" />
 
+<img width="4849" height="969" alt="image" src="https://github.com/user-attachments/assets/98cf42d3-4812-4265-973c-794000d04dee" />
 
 
 
