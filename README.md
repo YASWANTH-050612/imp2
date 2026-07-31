@@ -315,13 +315,20 @@ The Bachelorette Australia
 
 /josephine-jackson
 
+<img width="495" height="618" alt="image" src="https://github.com/user-attachments/assets/25b92a4e-d050-4ec1-a1bc-67b169d618aa" />
+
+<img width="554" height="554" alt="image" src="https://github.com/user-attachments/assets/6cc096e2-15cf-461b-b9d4-cd9a8bee4303" />
 
 
+<img width="554" height="554" alt="image" src="https://github.com/user-attachments/assets/332c23ac-910b-4b2d-a126-b38d79367f7a" />
 
+<img width="478" height="638" alt="image" src="https://github.com/user-attachments/assets/b96265af-7220-4bb3-9c5d-0b15c00f385e" />
 
+<img width="414" height="737" alt="image" src="https://github.com/user-attachments/assets/46a4a0be-1b71-4b12-92eb-dd9706720553" />
 
+<img width="414" height="737" alt="image" src="https://github.com/user-attachments/assets/a9060f8a-8f4b-4b5d-b758-80fea5b16655" />
 
-
+<img width="426" height="717" alt="image" src="https://github.com/user-attachments/assets/04950d95-758e-4f54-a20b-53a2830e119c" />
 
 
 
