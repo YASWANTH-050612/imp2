@@ -330,7 +330,7 @@ The Bachelorette Australia
 
 <img width="426" height="717" alt="image" src="https://github.com/user-attachments/assets/04950d95-758e-4f54-a20b-53a2830e119c" />
 
-
+https://t4.ftcdn.net/jpg/01/03/53/89/240_F_103538966_uIevld7vKcOHeTgN92I5moMX37AdBsIv.jpg
 
 
 
