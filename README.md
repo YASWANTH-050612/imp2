@@ -383,6 +383,7 @@ https://v.ftcdn.net/05/42/74/02/240_F_542740249_BwqyiWs2txUKTSsDF2YOjKojGzbprhKD
 
 <img width="379" height="240" alt="image" src="https://github.com/user-attachments/assets/332eaed0-7809-4d8d-9d9c-73a6602a8e8c" />
 
+<img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/7301454c-667c-49ee-95ac-a36f27554a93" />
 
 
 
