@@ -385,14 +385,21 @@ https://v.ftcdn.net/05/42/74/02/240_F_542740249_BwqyiWs2txUKTSsDF2YOjKojGzbprhKD
 
 <img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/7301454c-667c-49ee-95ac-a36f27554a93" />
 
+<img width="600" height="927" alt="image" src="https://github.com/user-attachments/assets/6f2be8d2-2d91-48ba-9144-baf51728d8fb" />
+
+<img width="600" height="1310" alt="image" src="https://github.com/user-attachments/assets/6711179e-633d-481f-96a7-765238fce1cc" />
+
+<img width="600" height="750" alt="image" src="https://github.com/user-attachments/assets/23e295a3-cd09-4109-8785-a14c4841533a" />
+
+<img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/25a1b58f-fd3e-4529-897f-4073a30373da" />
+
+<img width="600" height="777" alt="image" src="https://github.com/user-attachments/assets/049a4326-c8f3-4f2f-951b-8b54ef1b36a7" />
 
 
+<img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/78c00f43-dce3-4c81-a4f6-e7dd71e7b201" />
 
 
-
-
-
-
+<img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/b0a20423-fd2c-4a1f-a588-35affa52a239" />
 
 
 
