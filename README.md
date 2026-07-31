@@ -332,17 +332,26 @@ The Bachelorette Australia
 
 https://t4.ftcdn.net/jpg/01/03/53/89/240_F_103538966_uIevld7vKcOHeTgN92I5moMX37AdBsIv.jpg
 
+<img width="1000" height="668" alt="image" src="https://github.com/user-attachments/assets/b3114307-4cdd-44b9-9dd1-b73734b590e4" />
+
+<img width="665" height="1000" alt="image" src="https://github.com/user-attachments/assets/1a484673-7b7c-460b-ab1c-a6a3ae4b5bdc" />
+
+<img width="1000" height="668" alt="image" src="https://github.com/user-attachments/assets/a9fd28c0-bee0-4b52-a0b6-1440143d7b76" />
+
+https://v.ftcdn.net/04/77/24/06/240_F_477240643_7leFUCXXLVwE07vaqt1rArOhzOF6zby8_ST.mp4
+
+<img width="456" height="240" alt="image" src="https://github.com/user-attachments/assets/734c21ab-a798-45f8-9e47-c6994114e3b1" />
+
+<img width="360" height="240" alt="image" src="https://github.com/user-attachments/assets/3ea0b680-cbe6-496f-9145-84a1312e99a2" />
+
+<img width="360" height="240" alt="image" src="https://github.com/user-attachments/assets/5e8fa6e4-68db-44bf-a0e9-0b8dc86e5dab" />
+
+<img width="360" height="240" alt="image" src="https://github.com/user-attachments/assets/d505d3ee-b3b0-4b71-8925-a45c694e32f2" />
 
 
+<img width="426" height="240" alt="image" src="https://github.com/user-attachments/assets/b8c30d6b-49cf-48c0-bd01-50cf5e656e1a" />
 
-
-
-
-
-
-
-
-
+https://v.ftcdn.net/05/54/04/52/240_F_554045251_TILYUdKki0HvDy0cPqR8IP4iZjNqQMo6_ST.mp4
 
 
 
